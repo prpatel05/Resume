@@ -3,6 +3,7 @@
 
 > [prpatel05@gmail.com](mailto:prpatel05@gmail.com)
 > (518)-636-9399
+> [Download Resume](https://github.com/prpatel05/Resume/raw/master/resume.pdf)
 
 ------
 
